@@ -1,4 +1,4 @@
 # sptech
-Primeiro repositorío da aula de Pesquisa e Inovação :)~
+Primeiro repositório da aula de Pesquisa e Inovação :)~
 
 Alterando repositório REMOTAMENTE xD~
